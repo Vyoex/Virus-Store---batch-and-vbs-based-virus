@@ -1,4 +1,4 @@
 @echo off
-title Hacked...
-msg * Your computer has been hacked by Rookie and Now your fies are transferring to IP : 127.0.0.1 
+title Hot Chicks Near Me 47819 Downloading..
+msg * Downloading 67GB Images and Videos of Hot Chicks : 127.0.0.1 
 --------------------------
